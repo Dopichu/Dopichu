@@ -1,1 +1,2 @@
-Lmao u gay UwU
+Studying IT at Uni
+
